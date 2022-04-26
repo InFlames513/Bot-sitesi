@@ -1,2 +1,2 @@
 # Bot-sitesi
-⚡ Star atmayı unutmayın.
+![site görünümü](https://inflames.please-fuck.me/5pZKDuMyK.png)
